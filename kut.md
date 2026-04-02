@@ -1,0 +1,1 @@
+kutaytu bilig
